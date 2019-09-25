@@ -1,0 +1,2 @@
+# TRADING
+Todo sobre trading
